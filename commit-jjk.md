@@ -1,1 +1,1 @@
-I Love Akuna
+I Love Adamik
