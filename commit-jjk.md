@@ -1,1 +1,1 @@
-I Love Kourtney
+I Love Rossana
