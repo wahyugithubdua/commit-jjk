@@ -1,1 +1,1 @@
-I Love Lanny
+I Love Cornell
