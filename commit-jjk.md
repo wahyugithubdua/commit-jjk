@@ -1,1 +1,1 @@
-I Love Idell
+I Love Detra
